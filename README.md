@@ -1,4 +1,4 @@
-# receta-de-payude
+# receta-de-payuje
 
 Es ideal para el desayuno y como buen postro en el almuerzo.
 
